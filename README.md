@@ -1,1 +1,0 @@
-# law-against-rehabilitation-of-nazism
